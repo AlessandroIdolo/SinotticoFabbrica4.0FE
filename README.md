@@ -1,0 +1,1 @@
+# SinotticoFabbrica4.0FE
